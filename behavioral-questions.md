@@ -21,4 +21,14 @@
 
 A. 
 
-##
+## Client-facing Skills
+
+6. **Describe a time when it was especially important to make a good impression on a client. How did you go about doing so?**
+
+7. **Give me an example of a time when you didn not meet a client's expectation. What happened, and how did you attempt to rectify the situation?**
+
+8. **Tell me about a time when you made sure a customer was pleased with your service**
+
+9. **Describe a time when you had to interact with a difficult client. What was the situation and how did you handle it.**
+
+10. **When you're working with a large number of customers, it's tricky to deliver excellant service to them all. How do you go about prioritizing your customers' needs?**
