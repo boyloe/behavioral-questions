@@ -14,3 +14,9 @@
     A. Use same answer as before
     
 4. **We all make mistakes we wish we could take back. Tell me about a time you wish you'd handled a situation differently with a colleague.**
+
+A. Jimmy poker story: I was dealing cards with friend of mine who started the company. We worked together 5 nights a week and were pretty good friends even outside of work. I had the opportunity to work with some other guys on another poker game to make some extra money and didn't bring it up with my friend/boss, not realizing that he might be upset that I was 'moonlighting' with another company that wasn't really competition but in the same industry. He found out about it and was upset and rather than sit down and work things out, we both dug in and stood our ground. He eventually came to the point where he told me to pick one or the other. Had I just considered his feelings in the beginning and just brought him into the loop, things might have gone differently. We eventually worked it out and returned to normal, but I think a lot of stress could have been avoided if I handled it differently. 
+
+5. **Tell me about a time you needed to get information from someone who wasn't very responsive. What did you do?**
+
+A. 
